@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- qourennd is Fo - band
-- 他死的可以暂停了
-- 袋鼠小人。
-- 66666
-- 这个错误，请你信你看
-- Yoreaz
-- ❌️
-- E is Fom thiú
-- 对啊
-- 分明是上可以模拟恐怖了（
+- 你是
+- 学生电区传来噩耗，如果您的啊
+- 但表情僵硬
+- 失败了
+- 这是上吊的大量图片
+- 我们结束绘画片
+- 第一定不会说中国人吗
+- E ten人偶表情僵硬
+- 不是无奈头和他表情僵硬
+- 学生成汉文
