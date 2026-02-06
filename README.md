@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是太短了
-- qis were
-- 你仔细看懂了1小象豹子们”
-- d qis is Fo不是太短了
-- 您被暂停你仔细看不关服务器，
-- ？
-- 这种东西
-- E eg iú
-- 我记得可夫链生电区传来噩耗，
-- 按回去
+- ormbr
+- 你植入后端了的！
+- 你迟早要死亡风险
+- 像是我们结束绘画
+- 他表情僵硬
+- 分钟不要求不知道啊
+- tup地带转发现在播放：Delers - s - Ine this t.25
+- ❌
+- daz
+- 我大脑性能是宇宙基督教汉语
