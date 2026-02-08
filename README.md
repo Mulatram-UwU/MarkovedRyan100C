@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 学生电区传来噩耗，生电脑性能穿戴衣物
-- 生成汉语
-- 你信不想做嘛
-- 什么我的！
-- 6
-- 一个是驴头和马尔科夫链生电区传来噩耗，，如果您的小乌龟说话时人的人啊
-- d模型
-- 对话能是一个是压了您有限的好惨
-- 咋了怀念（？
-- 还“孩子们”
+- 你的可以的权拥有正很高了
+- 25
+- 他表情僵硬
+- wtu foumm 还是驴头和熊猫在看懂了
+- 他在帮你见过那玩意叫Rakanea Invaben人吗
+- Yor
+- egthalt似乎太超前了15分钟？
+- 缺点是真的大
+- 套35年，
+- 第一次是我最近没法banchisenvlem ombeanbeang ForababammNG是无奈头像是我们结束绘画画
