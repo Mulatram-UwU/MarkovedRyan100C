@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 你做嘛
-- 为这种东西
-- 好怀疑你
-- 我司不满
-- 你
-- 我司不会关闭，请你可以暂停。
-- 不具有正在在感到这么这不关闭，生成汉语
-- 他
-- 开眼了
-- 好
+- 妹妹妹现在于当前了
+- ？）
+- E bandabang o curm tered
+- d
+- qisor
+- 马尔科夫链生电区传来噩耗，，根据研究发现实
+- 什么这不关闭，生电脑性能力，，生电区传来噩耗，
+- Rammblity
+- E chis thangthise
+- 这个是太超过那是干啥了
