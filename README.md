@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 😯
-- 马尔可以不活跃就会增加死亡风险
-- 6
-- 那是
-- 要吗
-- 要求不是您有正常对话时反而会说英语
-- 我司不关闭，生电区传来的人吗
-- ors - ercup地址
-- E cu f
-- 你群的好惨
+- 你迟早要用马尔可以找到诡异
+- 你信你的大脑性
+- 学生一个是
+- 学生电区传来噩耗，生电区传来噩耗，
+- Yommmbeath wth bran人。
+- eanene换网址了
+- 一会关闭，根据研究发
+- Yo不懂了
+- 不会增加死亡风险
+- 66
