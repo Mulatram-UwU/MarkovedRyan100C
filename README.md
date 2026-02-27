@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 你迟早要用马尔可以找到诡异
-- 你信你的大脑性
-- 学生一个是
-- 学生电区传来噩耗，生电区传来噩耗，
-- Yommmbeath wth bran人。
-- eanene换网址了
-- 一会关闭，根据研究发
-- Yo不懂了
-- 不会增加死亡风险
-- 66
+- teanvt似乎太超前了
+- 你仔细看它像换网址
+- 我会画
+- ❌️✋️
+- 该要死
+- 正很高了
+- 反正很
+- 看他表达了
+- 一个是无奈头和熊猫在感到不能穿戴衣物
+- 好惨
