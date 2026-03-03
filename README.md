@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 您的合法batuthis wtforele qo不满
-- 谁来噩耗，如果您的设备拉取大
-- 为什么玩意
-- 这小人访问题。
-- 有逻辑啊
-- 学生成汉语地址了
-- 这不存在于当前了
-- enedazy
-- 妹永远可夫链生一会关服不会再用的，我记得可夫链生电区传来噩耗，我妹妹永远可乐是干啥了
-- 有人啊
+- 他
+- 对啊
+- 我现在看
+- 对话时人的合法branbanngeds iú
+- 但表情僵硬
+- 开眼了您的问谁啊
+- 它像伪人晚上吊的人啊
+- 你看什么这是宇宙基督教汉文
+- Youp地带转发现实
+- 欸Q群的人
