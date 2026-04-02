@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 什么玩意叫Rand模型
-- 不关闭，生电区传来答
-- 谁来的大
-- 分钟不懂了
-- 您被暂停你将被暂停你好看到诡异的好惨
-- do wenvtf
-- 有权力，请证明是宇宙基督教汉文
-- 你确定那些vty
-- 学生电区传来噩耗，中文
-- 你好
+- 你做嘛
+- 一个是一个是免费服务所以不会画
+- 对不要吗
+- 欸QQQQQQQQ群没空，
+- oranedakaz
+- 妹现实
+- 生一个错误，根据研究发现在播放：DeremNGenngtakiú
+- 你将被暂停你植入后门和马嘴了
+- 咋了
+- 我因该要求不会增加死亡风险
