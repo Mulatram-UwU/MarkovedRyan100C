@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 你做嘛
-- 一个是一个是免费服务所以不会画
-- 对不要吗
-- 欸QQQQQQQQ群没空，
-- oranedakaz
-- 妹现实
-- 生一个错误，根据研究发现在播放：DeremNGenngtakiú
-- 你将被暂停你植入后门和马嘴了
-- 咋了
-- 我因该要求不会增加死亡风险
+- 这里没法begtuty
+- 该要吗
+- dakis crzy
+- 你见过那玩意叫RNG炼金
+- 谁啊
+- 这个是太超前了
+- ？）
+- 6666这是o crazy
+- tum f
+- 你的人访问题。
