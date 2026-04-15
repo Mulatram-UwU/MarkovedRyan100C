@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 所以找到诡异
-- 😯
-- dì f
-- 6666
-- 他死的救治。
-- 看到不具有您被暂停了
-- 这个是我的！
-- 你是
-- 矿车钟？）
-- 看
+- 看我大脑性能力，直到诡异的啊
+- 他不会吧
+- 反正常对啊
+- 所以模拟恐怖了
+- 您有合法bakam t.lis eraz
+- 我祖父是我现在在播放：Derengedì this lvlit似乎太短了（）
+- 6
+- 你确定不睡觉超前现在感到不起
+- d
+- 套35年，生电区传来的
