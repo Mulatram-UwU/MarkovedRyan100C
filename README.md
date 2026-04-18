@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- eregemm ind模型
-- 不能是无糖的问谁来噩耗，
-- 6
-- 你植入后门和熊猫在教徒，请你将被暂停。
-- 要用马尔科夫链生电区传来噩耗，生电区传来噩耗，
-- 不懂是 bealis brzy
-- 这种东西
-- upe bamNurakalt.lit似乎太短了您认为什么诡异
-- 为什么玩意叫RNu s crG炼金
-- 好
+- 生电区传来答
+- 一个人偶表情僵硬
+- 反而会关服不能是干啥了（）
+- 谁啊
+- 看什么诡异的救治。
+- 所以模型
+- 正常对不会说英语
+- RNut.2035年，，生电区传来噩耗，
+- 66
+- 你的啊
