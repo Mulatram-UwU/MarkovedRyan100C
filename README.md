@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- dì cerzy
-- 生电区传来噩耗，如果您被暂停。
-- ❌
-- 按回去
-- 反而会说英语地带转发
-- 双向中国人偶表情闪烁吗
-- 666
-- 我会
-- 套35年，中文
-- 不起
+- ❌️✋️
+- 6
+- 您被暂停你看
+- 是0
+- 马嘴了
+- 是宇宙基督教汉语
+- 不知道啊
+- 妹现在于当前现在播放：Denndso不会
+- 看他
+- E -Makanvtoredì envl.25年，中继器
