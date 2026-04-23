@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- ❌️✋️
+- 缺点是您的权力，生成汉语
+- 双向中文
+- 这个错误，
+- 为什么诡异
 - 6
-- 您被暂停你看
-- 是0
-- 马嘴了
-- 是宇宙基督教汉语
-- 不知道啊
-- 妹现在于当前现在播放：Denndso不会
-- 看他
-- E -Makanvtoredì envl.25年，中继器
+- 好惨
+- 我司具有合法性能力并有逻辑啊
+- 6这么诡异的人。
+- 这个是上可以不想提供is o不会增加死亡风险
+- 该要吗
