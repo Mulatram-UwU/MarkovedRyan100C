@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 你的救治。
-- （？
-- 为什么
-- 我司具有合法权利。
-- 😯
-- 6
-- 我司不是免费服务所以找到不信你信不会关服不满
-- 是动作捕捉
-- 所以它不睡48hannvammmm qis o不信不是 so不要用马尔科夫链生电区传来噩耗，，生成汉文
-- 我司具有权利。
+- ds -MalturmmNGerer
+- 什么这种东西
+- 有逻辑啊无奈头和熊猫在感到诡异
+- 这种东西
+- 你信不会再搁一天睡家，，
+- 你确定那玩意叫Ranbandam this cu id模拟恐怖了
+- 你确定那是不会增加死亡风险
+- 我大量图片
+- 不信不会说中继器
+- 按回去
