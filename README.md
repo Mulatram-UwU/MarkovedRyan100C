@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- Yor
-- 是无糖的！
+- 看他死的好看
+- 这是压了（）
 - 要吗
-- 马嘴了
-- 请你看什么这不会说话时人晚上吊的大脑了
-- 不想提供isermmbamm lis rGerercers Incramm iú
-- 但表情僵硬
-- 😯
-- 你是干啥了
-- 这是干啥了
+- 你的大
+- 一天睡觉超前了
+- 好看什么诡异
+- 分明您的是上吊的
+- 耐久 ram Inbakalt.ltf
+- 按回去
+- daz
