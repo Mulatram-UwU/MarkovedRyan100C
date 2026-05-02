@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 您认为什么
-- 马尔科夫链生电区传来噩耗，直到不是有权利。
-- edì thip地带转来噩耗，
-- 学生成汉语
-- 不关服务所以它像伪人
-- ？
-- 我最近没有您被暂停了
-- 好惨
-- 看不关闭，
-- ？
+- 这是0035分钟不知道啊
+- 像换网址了的权拥有合法bamblis orababrz
+- 正很高了我司具有合法baliú
+- 200个服务器，生电区传来噩耗，
+- 6
+- 一个是无奈头和马嘴了我害怕
+- 你仔细看
+- 我害怕
+- ds embeg thida o不活跃就会关闭，中文
+- 我们”
