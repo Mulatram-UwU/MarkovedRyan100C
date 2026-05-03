@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 这是0035分钟不知道啊
-- 像换网址了的权拥有合法bamblis orababrz
-- 正很高了我司具有合法baliú
-- 200个服务器，生电区传来噩耗，
-- 6
-- 一个是无奈头和马嘴了我害怕
-- 你仔细看
-- 我害怕
-- ds embeg thida o不活跃就会关闭，中文
-- 我们”
+- 不存在于当前现在播放：De
+- d
+- 一个服不存在播放：Dea lis rs we qor
+- 你
+- 欸QQ群没空，
+- Yom天线宝
+- 有权力并有逻辑啊
+- 第一次是我用你比我最近没有逻辑啊
+- 双向中继器
+- 请证明是压了您的好惨
