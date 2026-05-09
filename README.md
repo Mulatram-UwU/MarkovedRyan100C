@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 为什么
-- 他在感到下一个人访问题。
-- 不具有医院进行病人的可以模型
-- 开眼了
-- 我用你将被暂停你看到下一定那玩意叫RNGenge-Mazy
-- 矿车钟？
-- 你见过155
-- 看它不关闭，请你
-- 你可以模型
+- 它像伪人都着魔了
+- ❌️
+- o不想提供iperermblto berem天线宝
+- 请你确定不存在教汉文
+- 马嘴了
+- 学生电区传来的！
+- 他死
+- 生电脑性能穿戴衣物
+- 我用马嘴了
 - 套35
