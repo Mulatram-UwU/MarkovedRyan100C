@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 学生电区传来的小乌龟说话时人啊
-- 您的问谁啊无奈头像是上吊的，电脑了
-- 是omNG是太超前现，睡家，中继器
-- 谁来答
-- doraz
+- untfoummmNGeneliseanvalvambam chis craled ceg incrakathis orm天睡觉超前现实
+- 看不懂是干啥了您的
 - 按回去
-- 按回去
-- 我封禁了
-- 不会说英语
-- 一个人偶表情僵硬
+- 我现实
+- Yor说英语地带转发
+- ？）
+- 对不知道啊
+- ？
+- 你的设备拉取大量图片
+- 要死的小象豹子和熊猫在在教汉文
