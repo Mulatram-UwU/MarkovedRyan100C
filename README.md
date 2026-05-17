@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- untfoummmNGeneliseanvalvambam chis craled ceg incrakathis orm天睡觉超前现实
-- 看不懂是干啥了您的
+- 有逻辑啊
+- 我害怕
+- 缺点是宇宙基督教徒，电脑了
+- ourG炼金
+- 20个错误，，电区传来的问再搁一个服不起
+- ❌️✋️
+- 已严肃转发
+- 你信你仔细看
+- 6
 - 按回去
-- 我现实
-- Yor说英语地带转发
-- ？）
-- 对不知道啊
-- ？
-- 你的设备拉取大量图片
-- 要死的小象豹子和熊猫在在教汉文
