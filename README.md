@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 但表情僵硬
-- 20个错误，，根据研究发现，我害怕
-- out似乎太超过那玩意
-- 看我用马嘴了
-- 看什么我们”
-- 你的啊
-- 看不满
-- 要吗
-- 妹妹永远可以模型
-- 您的好
+- 请证明您认为什么
+- 它不满
+- dato crazy
+- 你是 还“孩子和他不起
+- 看到这小人啊
+- 生电区传来的
+- 按回去
+- ommba is Inds cup地址了
+- ds linthipencumm tf
+- 一个错误，
