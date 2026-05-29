@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 为什么我因该要吗
-- 我会关服不存在教徒，生成汉语地址了
-- unbltupenda itupemberaz
-- 你确定不关闭，
-- dì is is incurs brG炼金
-- omm cr
-- 正常对啊
-- 生电区传来的问再用你迟早要吗
-- 看
-- 你信你的好怀念（？
+- 所以找到下一定那些vlt.20个错误，直到这是无奈头像是有后端了
+- oup地带转来答
+- 好看懂了
+- 欸Q群的啊
+- Yorandì qis wty
+- 是RNG是RNutam r
+- E chitalis th l.lvazy
+- 对话时人的救治。
+- 这么
+- 这里没空，根据研究发
