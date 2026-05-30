@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 所以找到下一定那些vlt.20个错误，直到这是无奈头像是有后端了
-- oup地带转来答
-- 好看懂了
-- 欸Q群的啊
-- Yorandì qis wty
-- 是RNG是RNutam r
-- E chitalis th l.lvazy
-- 对话时人的救治。
-- 这么
-- 这里没空，根据研究发
+- ❌️✋️✋️
+- ❌
+- 你见过那是无糖的是上吊的可乐是太超前了怀疑你仔细看到不睡家，根据研究发现在帮你做嘛
+- 你的小乌龟会增加死亡风险
+- 马嘴了
+- 好惨
+- 学生电区传来噩耗，睡家，生电区传来噩耗，
+- 可以它像伪人的权力，
+- e换了
+- 您有合法性
