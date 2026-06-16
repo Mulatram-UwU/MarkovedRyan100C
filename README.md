@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 66
-- 有权利。
-- 像换网址了
-- 反正在播放：De
-- 双向中继器，根据研究发
-- 它像是o不关服务器，生一个是有合法berabentent.25
-- 我封禁了
-- 耐久 this lemmbealed Fou Inn人。
-- 学生电脑性能穿戴衣物
-- 你的是有人晚上可以它像换网址了我司具有权力并有限的
+- 有后端了
+- 不存在播放：Dele
+- 反而会再搁一个是您被暂停。
+- 你迟早要用你仔细看不具有医院进行病人偶表情僵硬
+- 你不会画画片
+- 我会再搁一个是宇宙基督教汉文
+- 咋了
+- 我的救治。
+- 像换了
+- weg ForGedorzy
