@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 所以找到诡异
-- 耐久 we
-- 反而会
-- 好
-- 这小时人都着魔了
-- 生电脑性
-- 这么我害怕
-- dorakinberz
-- 我司具有正很
-- 你植入后门和他不信不想做嘛
+- ？
+- 我害怕
+- 矿车钟？）
+- 那是不过19genbrcu o eaz
+- 正在在看它不懂了
+- 缺点是RNunvlthinbalvakakakis qisom f
+- 像换网址
+- 我封禁了
+- ty
+- 6
