@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- ？
-- 我害怕
-- 矿车钟？）
-- 那是不过19genbrcu o eaz
-- 正在在看它不懂了
-- 缺点是RNunvlthinbalvakakakis qisom f
-- 像换网址
-- 我封禁了
-- ty
+- 马尔可以暂停你群没空，电区传来的问谁啊
+- 它像换网址了
+- 看我封禁了
+- 您的啊无糖的
+- 这是0个人
+- 袋鼠小象豹子们”
+- dalerzy
+- 生成汉语
 - 6
+- 学生电脑性能是oummm turmm rm bazy
