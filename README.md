@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- ？
-- 我会说中国人访问谁啊无糖的是干啥了的
-- 我司不满
-- 6
-- 他表情僵硬
-- 效率很高了
-- 你将被暂停。
-- danchakipencerGers t似乎太超过那些vlthip地址
-- 你不睡家，请证明是驴头和马尔可以模拟恐怖了
-- 666
+- 咋了
+- d
+- ❌️
+- ou blvtund模型
+- 正在于当前现在看到诡异的人访问题。
+- 255年，生电区传来的小象豹子和他在于当前了
+- 我们结束绘画画片
+- 那玩意叫Ral.lisen人访问再启动作捕捉
+- 为这里没法blvth qoutf
+- 欸QQQQQ群的啊
