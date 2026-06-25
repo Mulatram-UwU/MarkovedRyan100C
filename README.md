@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 6
-- 咋了我害怕
-- 好
-- 你可以19g chis selis is ise
-- 这小众动作捕捉
-- 什么我最近没法bantf
-- 妹妹永远可以的，根据研究发现，，，
-- 你将被暂停了我祖父是想做嘛
-- 矿车钟不睡觉超过19g - orzy
-- 妹妹妹现，
+- 有逻辑啊无奈头像是动画画画
+- ❌️
+- 马嘴了
+- 我最近没空，
+- qor
+- ty
+- 你植入后门和马嘴了我祖父是宇宙基督教徒，如果您认为这是上吊的好惨
+- 你确定那玩意
+- orakis ed is orant.lis curaneg cumm qoutundoranthis qo chamNG炼金
+- 你比我现实
