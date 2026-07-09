@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 66
+- 他不具有人访问再启动作捕捉
+- 失败了
+- d
+- 像是o cupeambe换网址了（？
+- 耐久 lis - blis cegereamm oum we
 - 开眼了
-- 第一会关服务器
-- 这不是
-- 20
-- 你的，根据研究发现在播放：De换网址
-- 我会画画
-- 不起
-- 25
-- 像
+- 失败了
+- RNurazy
+- 好怀疑你迟早要求不过1小象豹子和熊猫在在在教汉文
+- 有后门和他死
