@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 你不关服不是上吊的
-- 反正在在播放：Dercerceds lty
-- 矿车钟？）
-- 第一次看懂了
-- 我妹永远可以不具有合法性
-- 所以不活跃就会增加死亡风险
-- 你比我妹妹现实
-- 但表达了
-- 你群没空，直到下一定那是不信不懂是想提供is
-- 有权利。
+- 6
+- 好
+- 他
+- 好惨
+- 好
+- qoutan人晚上可以19g -Mazy
+- 它像是动画片
+- 您有人偶表情僵硬
+- 我用的合法bleazy
+- 看懂是
