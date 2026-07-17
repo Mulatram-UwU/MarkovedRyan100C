@@ -2,12 +2,12 @@
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
 - 6
-- 好
-- 他
-- 好惨
-- 好
-- qoutan人晚上可以19g -Mazy
-- 它像是动画片
-- 您有人偶表情僵硬
-- 我用的合法bleazy
-- 看懂是
+- ❌
+- ❌️
+- 马尔科夫链生电区传来的人啊无糖的好惨
+- ❌
+- 我妹永远可以不起
+- qormm thipenncedì Foup地址了
+- 你不懂了
+- 有权力，生电区传来噩耗，生电区传来噩耗，
+- 学生电区传来的小象豹子们”
