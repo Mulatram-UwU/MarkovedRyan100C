@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 6
-- ❌
-- ❌️
-- 马尔科夫链生电区传来的人啊无糖的好惨
-- ❌
-- 我妹永远可以不起
-- qormm thipenncedì Foup地址了
-- 你不懂了
-- 有权力，生电区传来噩耗，生电区传来噩耗，
-- 学生电区传来的小象豹子们”
+- 你信你群没空，
+- 您的，，请你群没空，我们结束绘画
+- 我封禁了怀念（）
+- 分钟？）
+- 已严肃转来噩耗，请你不存在于当前了
+- 失败了
+- 马嘴了
+- 缺点是压了1555分钟不睡48hathis -Man人
+- ds is is - bamba Fom isemmm r
+- 反正常对啊
