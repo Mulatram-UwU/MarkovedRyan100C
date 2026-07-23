@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- ❌️✋️
-- 有合法权力，，根据研究发
-- RNummmmbrs
-- 一个服务器，中国人啊无奈头像
-- 对啊
-- 您有人都着魔了
-- doumbat.lth chisedo不过1小乌龟说英语
-- 一个错误，
-- E chis is Fo f
-- 我司不会再启动
+- RNG是or说中国人访问题。
+- （
+- ？）
+- 你比我最近没法bed
+- 你见过15年，生电区传来噩耗，，，睡48haz
+- 你
+- 这里没法性能是orz
+- 请证明是
+- 我用的权利。
+- 他死
