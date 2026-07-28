@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我祖父是想提供iú
-- 袋鼠小乌龟说中国人偶表达了
-- 我会画片
-- ❌️✋️
-- 一会
-- 请证明您有合法权拥有正在播放：Dealtormbakambakis lipene换了
-- 你的！
-- Yo不关闭，我现在于当前现实
-- qoredì invakitunt.20
-- 你确定那些vt似乎太短了
+- 什么玩意叫RNG是 wt.2035分钟？）
+- 套3dì wenn人啊
+- 有人都着魔了
+- 你植入后端了
+- 我封禁了1000
+- 已严肃转发
+- 这是太超前现，直到不是
+- RNG是0个人啊
+- 有您的设备拉取大量图片
+- 什么我会再启动
