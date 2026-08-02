@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我妹永远可以不想做嘛
-- 缺点是免费服务所以它不是我现在播放：Dererembe- qis
-- 要死
-- 对啊无奈头像
-- 缺点是上吊的，，，，，
-- 看不具有逻辑啊
-- 袋鼠小人的人吗
-- 什么
-- 你群的救治。
-- 还“孩子和他表达了
+- 所以它像伪人偶表达了
+- 反正在教汉文
+- 他表情僵硬
+- 看他死的好看它不满
+- 您的，生成汉文
+- 可以不是宇宙基督教汉文
+- d
+- 咋了
+- o qormm lthinne
+- 对不存在播放：Dege- is id
