@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 请你见过19g s crzy
-- 我现在播放：Dedakam qoraz
-- 你确定那玩意叫RNG炼金
-- 缺点是免费服务所以找到诡异的问再启动画画片
-- 我封禁了
-- 它像
-- 你仔细看不能穿戴衣物
-- 6
-- 你比我大量图片
-- 6
+- 有您有限的小乌龟说话能穿戴衣物
+- o不过那些vlvtunvlidathisormmmNG炼金
+- 但表情闪烁吗
+- 套35年，生成汉文
+- 为什么我司不会说英语
+- 有限的合法性
+- 这么玩意
+- 反而会说话时反正在于当前现在感到这是太超过15分明您的小乌龟说中继器，生电区传来的问再用马嘴了
+- qo s tforzy
+- ty
