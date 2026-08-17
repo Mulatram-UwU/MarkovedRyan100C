@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 一个是干啥了
-- 欸Q群没法熄灭
-- 6
-- 生一个是一定那种东西
-- 不信不信你的小，如果您的！
-- 分钟我大帽子👀 wenencrGegtem cr说英语
-- 😯
-- 我现实体
-- 我封禁了的权拥有关闭，可以不是 fo qisegenng Indakakam is credane is curcutorzy
-- 他在在看什么这个服不知道啊无糖的链生电区传来啦
+- 为什么
+- 有权利。
+- 你仔细看他
+- 你不想做嘛
+- dalval.lithids cred qid qore Int似乎太超过19genbrzy
+- 交互实体和熊猫在感到不会吧
+- 有正常对话时人
+- 咋了
+- 缺点是您的可以不具有逻辑啊
+- ❌
