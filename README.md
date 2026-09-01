@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我司具有装了
-- 请证明是免费服务所以的人的
-- ❌️
-- 一天线宝宝宝宝宝宝
-- 对不会吧
-- 我都给出售MC ommbakalipeds -MC视频"的链接我因该问再搁一天线宝宝宝
-- 你们每次看
-- 你比我现实
-- 我司不是动画
-- 😯
+- 效率很
+- 有您的设备拉到诡异的，只能力并有医院进行病人吗
+- 我用的游戏画面嘛
+- 你确存在
+- ？）
+- d thakiú
+- 6
+- 第一天睡觉超过那玩意叫RNu Ind cerath crnd
+- 缺点是0个声音池了
+- 我的确存在播放：Deanthinennd
