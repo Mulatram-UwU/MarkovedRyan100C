@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 效率很
-- 有您的设备拉到诡异的，只能力并有医院进行病人吗
-- 我用的游戏画面嘛
-- 你确存在
-- ？）
-- d thakiú
-- 6
-- 第一天睡觉超过那玩意叫RNu Ind cerath crnd
-- 缺点是0个声音池了
-- 我的确存在播放：Deanthinennd
+- 按回去
+- t.lis FommNG是想提供is 还是太短了，睡觉超过19gerzy
+- 该要用马尔科夫链生电区传来噩耗，请证明是一个声音实例卡在感到下一次发现实体和马尔科夫链接我最小乌龟会滚的设备拉到不关吗
+- 不想做嘛
+- 你植入后端了
+- 你群的大帽子和他在于当前了
+- 你好惨
+- ty
+- 这小心被不知道哪来答
+- 对啊
