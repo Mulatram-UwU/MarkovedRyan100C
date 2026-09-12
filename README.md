@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 套3的确存在于当前现，直到不能穿戴衣物
-- 我们”
-- 还是0
-- 你群的救治。
-- 分明
-- 学生成汉语
-- dablerzy
-- 套35年，
-- 一天线宝
-- 你信你好怀念（
+- wthis tf
+- enn人都给出售MC的
+- 我展馆里没空，中国人吗
+- 有两种东西
+- 不存在講幹話
+- （
+- ？
+- 该问谁来啦]Mancr说英语
+- 不懂是驴头和熊猫在你比我封禁了的，直到诡异
+- 欸QQ群的是我们结束绘画画片
