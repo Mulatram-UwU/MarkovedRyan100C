@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 哦，电脑了（
-- 他死亡风险
-- 第一顶"的大
-- 欸QQQQQ群没有权利。
-- 不活跃就哈气
-- Yowturcrz
-- 按回去
-- 缺点是压了
-- dì itatancum bamm天线宝宝宝宝
-- 为这个人都给出或硫磺有您认为什么这是RNGelvtereazy
+- 有两种方块没用你将被暂停了您的合法权力，生成汉语
+- 一定不知道啊无法权力，睡家，如果您的大脑性
+- 龙体
+- w的好怀念（）
+- RNG是有关服务所以不能是0个是想提供intor
+- 妹现在感到这么玩意
+- 好怀念（）
+- 您认为什么
+- 6
+- 正在
