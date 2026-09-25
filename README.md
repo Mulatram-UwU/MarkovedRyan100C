@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 有两种方块没用你将被暂停了您的合法权力，生成汉语
-- 一定不知道啊无法权力，睡家，如果您的大脑性
-- 龙体
-- w的好怀念（）
-- RNG是有关服务所以不能是0个是想提供intor
-- 妹现在感到这么玩意
-- 好怀念（）
-- 您认为什么
-- 6
-- 正在
+- 咋了，
+- ournis torabazy
+- 效率很
+- 他
+- 我祖父是一个声音池了
+- 马尔可以我们”
+- 我展馆里没用的问谁啊
+- 你见过那些vakinchinblvlth is se-Mormm天线宝宝宝
+- Yomea ount似乎太短了
+- 这是无糖的可以10035
