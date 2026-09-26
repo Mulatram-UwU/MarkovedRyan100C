@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 咋了，
-- ournis torabazy
-- 效率很
-- 他
-- 我祖父是一个声音池了
-- 马尔可以我们”
-- 我展馆里没用的问谁啊
-- 你见过那些vakinchinblvlth is se-Mormm天线宝宝宝
-- Yomea ount似乎太短了
-- 这是无糖的可以10035
+- 我妹现，只能退出或硫磺有装了
+- 一次是驴头和紫水晶或硫磺有两种东西
+- 我害怕
+- ？
+- 人偶表情僵硬
+- tumm 还是宇宙基督教汉文明您有两种东西
+- 像换了
+- 但表达了19gthakando eleregMC视频"的设备拉取大
+- ❌
+- 为什么
