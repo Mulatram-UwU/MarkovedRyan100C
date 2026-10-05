@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 分钟不是0个是 cung e换了
-- 你见过155
-- 有医院进行病人啊无糖的视频不存在
-- 开眼了
-- qidsors - b255分明
-- wte-MC视频"标价出来了
-- 双向中继器，
-- 所以的人访问再启动
+- 可乐是免费服务器
+- 你好
+- e换网址了
+- 你的救治。
+- 我的链生电区传来噩耗，生电区传来啦
+- tfowerzy
+- 学生电区传来噩耗，，只能是想做嘛
+- 你比我害怕
+- o oredsegMC视频不是想做嘛
 - 6
-- 看懂是压了
