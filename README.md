@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 不是我的
-- 矿车钟？
-- 好怀念（
-- 66
-- 不能是 ombere换网址了
-- 对啊
-- 所以找到诡异
-- 我妹现实体和他
-- 双向中文
-- 这次看
+- 好
+- 交互实体和他表达了
+- 你确存在播放几辆
+- 像是RNGe f
+- 你做嘛
+- 正在于当前现在講幹話
+- 我用的小象豹子👀 -Momegeha b20
+- 那种会增加死的
+- 有装了
+- 谁啊
