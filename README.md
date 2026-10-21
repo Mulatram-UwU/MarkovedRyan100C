@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 不会
-- 如果你见过1分钟不存在感到最近没有医院进行病人类文
-- 他
-- 你确定不会再用的合法熄灭
-- ds rz
-- 它像是动画片
-- 你
-- ds - le
-- 套3的链生成汉文
+- 我祖父是 Ind orz
+- 我最小众动画面嘛
+- 你们每次发b25年，根据研究发bal.23的权拥有装了
+- 那玩意叫RNup地址
+- 反而会关吗
+- 耐久 itf
+- Yorz
 - 咋了
+- 像伪人偶表情闪烁吗
+- 按回去
