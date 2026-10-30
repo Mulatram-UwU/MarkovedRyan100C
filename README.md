@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 这种方块没法熄灭
-- 咋了
-- 为什么诡异
-- 哦，生电脑了的小时人吗
-- 咋了的烘干啥了
-- 你们有您被不关闭，可以暂停。
-- 马尔科夫链生成汉文
-- 请你的救治。
-- 您被暂停。
-- edorang rcu bers qithit似乎太短了
+- RNutoral.lidoraltoreg f
+- 它不关服务器，
+- 为什么这里有您的
+- d模拟恐怖了
+- 所以我展馆里有医院进行病人。
+- ❌
+- 你机器，请你迟早要用你好怀疑你好
+- 但表情僵硬
+- 所以不知道哪来噩耗，
+- ❌️
