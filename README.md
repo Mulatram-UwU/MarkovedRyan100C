@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 哦，生一次发balerercrneanis 还“孩子👀 ip地址
-- 所以暂停。
-- wtommNG炼金
-- 好
-- 我就会说中国人吗
-- 你们”
-- 但表情闪烁吗
-- qity
-- 他表情闪烁吗
-- 龙体
+- 哦，然后手动
+- 不满
+- RNG是我现，只能是or
+- RNG是上吊的烘干机吗
+- 对话时人的游戏画片
+- 所以暂停了
+- 请证明您有合法熄灭
+- 他
+- 套355
+- 看懂是 wendakiseds iú
