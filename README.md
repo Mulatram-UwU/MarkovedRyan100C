@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 不过那个人类文
-- 你的人的是您被暂停。
-- 6
-- 但表情闪烁吗
-- 欸Q群的合法baba rancramNG炼金
-- 双向中继器录像
-- 有合法熄灭
-- 但表情闪烁吗
-- 你群的！
 - 为什么
+- dors ty
+- e换网址了
+- 如果您认为什么这里没用的烘干机器录像
+- 他在教汉文明
+- 咋了怀念（）
+- 他
+- 我记得跑浏览器去
+- 他表情僵硬
+- wtupeandse换了的游戏画
