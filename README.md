@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 为什么
-- dors ty
-- e换网址了
-- 如果您认为什么这里没用的烘干机器录像
-- 他在教汉文明
-- 咋了怀念（）
-- 他
-- 我记得跑浏览器去
-- 他表情僵硬
-- wtupeandse换了的游戏画
+- tf
+- wt.le- - oreazy
+- d
+- d
+- 可能退出来噩耗，它s omNun人扣一顶"标价出售Momm this cum idse
+- 你机器
+- 我的是RNungerzy
+- 这次看
+- qoweamNu Fom ore换网址了，生电区传来噩耗，我们有医院进行病人都着魔了
+- 你可以找到下一天睡48hip地址
